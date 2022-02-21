@@ -1,2 +1,13 @@
 # Dmiliate2.github.io
-Professional
+Professional for Daniel Miliate
+
+
+
+
+
+
+
+
+
+
+
